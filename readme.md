@@ -1,1 +1,1 @@
-
+bylo to v pokynech
